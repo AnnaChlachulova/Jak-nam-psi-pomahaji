@@ -1,2 +1,3 @@
 # Jak-nam-psi-pomahaji
 ![můj moodboard](file:///C:/Users/Anna/Downloads/The%20Villanueva%20Family%20Pooches%20(1).pdf)
+[článek]((Můj moodboard obsahuje základní myšlenky a nápady vztahující se k našemu společnému projektu zaměřenému na specifický vztah mezi člověkem a psem. Už od ochočení byl pes zapojován do mnohých oblastí lidského života a jinak tomu není ani v dnešní době. Naopak. Jeho působnost se ještě rozšířila. Nejen, že chrání naše domovy, zachraňují nám životy v krizových situacích, pomáhají detekovat drogy, zbraně, ale také nám pomáhají když je nám nejhůře u nemocničních lůžek jako canisterapeutičtí psi. Zkrátka v každé oblasti nám psi s něčím pomáhají a to je něco, co si zaslouží naši vděčnost a uznání.)
